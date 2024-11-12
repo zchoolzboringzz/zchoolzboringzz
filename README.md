@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @zchoolzboringzz
-- 👀 I’m interested in gaming.
+# Introduction!
+- 👋 Hi, I’m @zchoolzboringzz !! :3
+- 👀 I’m interested in games and unblocking website.
 - 🌱 I’m currently learning how to unblock websites.
 - 💞️ I’m looking to collaborate on other project I will not name.
 - 📫 How to reach me; on gmail.
